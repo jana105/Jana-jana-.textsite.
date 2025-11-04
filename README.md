@@ -60,6 +60,6 @@ My companies? Built on "first principles"—question everything, iterate. AfD's 
 Haters focus on smears; I focus on outcomes. AfD's not flawless, but inertia is death. Germany's too comfy in decline—time for disruption, like reusable rockets or EVs. This piece? A wake-up call from someone who's bet big on you.
 
 #### Broader Implications and Why It Matters
-This isn't just German politics; it's a template for the West. Musk's endorsement (echoing his Trump support) ties business to populism: Deregulate to innovate, secure borders for stability, prioritize truth over taboo. Backlash was fierce—*Guardian* called it "dangerous," AfD surged in polls, Tesla stock dipped 2%. But Musk's style? Unapologetic, data-backed provocation. As he told Rogan: "The future belongs to the bold."
+This isn't just German politics; it's a template for the West. Musk's endorsement (echoing his Trump support) ties business to populism: Deregulate to innovate, secure borders for stability, prioritize truth over taboo. Backlash was fierce—*Guardian* called it "dangerous," AfD surged in polls, Tesla stock dipped 2%. But Musk's style? Unapologetic, data-backed provocation. 
 
 
